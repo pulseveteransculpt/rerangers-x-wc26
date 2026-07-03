@@ -1,4 +1,4 @@
-
+no-ban re:rangers x Scripts is the best re:rangers x Script, featuring fly and auto-collect. Safe and powerful for all your needs.
 
 
 
